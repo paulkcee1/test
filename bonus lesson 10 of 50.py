@@ -1,0 +1,1 @@
+# computer memorry and locations
